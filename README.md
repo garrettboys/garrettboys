@@ -1,1 +1,1 @@
-script kiddie learning java
+hatsune miku loving programmer
